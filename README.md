@@ -28,7 +28,7 @@ Estou em constante evolução estudando e aprimorando minhas habilidades em HTML
 Para mais informações ou para agendar um serviço, entre em contato:
 
 - Email: roseane.1212@hotmail.com
-- Instagram Profissional :https://www.instagram.com/rose.codesweb/
+
 
 
   
